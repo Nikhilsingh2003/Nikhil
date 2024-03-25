@@ -1,4 +1,4 @@
-# Hey👋, It's *Ankit* here!
+# Hey👋, It's *Nikhil Singh* here!
 
 Some facts about me - 
 * From India.
